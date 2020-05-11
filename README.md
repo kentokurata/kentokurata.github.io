@@ -1,1 +1,0 @@
-# kentokurata.github.io
